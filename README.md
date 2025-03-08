@@ -1,29 +1,29 @@
-![image](https://github.com/user-attachments/assets/09fd07cd-261c-44c2-abbc-9948d60f708e)
+![image](https://github.com/user-attachments/assets/0a14fa86-d7fe-44fb-a9b4-b32afcff18b2)
 
 
 ⠀ ᯓ any1 can int w me, idm 
-　 　　　![image](https://github.com/user-attachments/assets/727a8d88-05c6-494d-abb5-c44773d1e720)
+　 　　　![image](https://github.com/user-attachments/assets/375f6b19-37da-4a89-92d5-43fd0f346323)
 
 　 　　　im usually offtab, pls whisp 　 　　　　 📼
 
 ٠࣪⭑ i'll allow c+h sometimes
 
- ![image](https://github.com/user-attachments/assets/907bce5b-d9ff-4a72-abc3-d5006de62aa7)
-　 　　　　 🎟️. ⋆⸜  ![image](https://github.com/user-attachments/assets/1a01c30b-7e37-43e2-b236-e9275c7e5655)
+![image](https://github.com/user-attachments/assets/3518d060-9ac6-4f16-8841-c2803c6a6c3a)
+　 　　　　 🎟️. ⋆⸜  ![image](https://github.com/user-attachments/assets/2f4b4729-b089-43c8-90dc-d2a60a681b98)
 　 　　🐞
+
+
 
 
 ꩜ basic dni 
 
-![image](https://github.com/user-attachments/assets/c3312b29-d47f-4d5d-b4ed-b7e3577a91f4)   ![image](https://github.com/user-attachments/assets/c1e16f22-ed65-4665-9939-ac9c72171c60)  ![image](https://github.com/user-attachments/assets/c04100c2-318e-4ab4-9f08-0c13650192a6)
+
+![image](https://github.com/user-attachments/assets/741e2f2d-37e9-451e-ae3d-813207b8c0e4)  ![image](https://github.com/user-attachments/assets/b6935398-eefb-45f5-9187-5ce774c3ca55) ![image](https://github.com/user-attachments/assets/42327c26-0da1-4f7f-a10b-b7ce782970bb)
+
+𖥔. dni rp go away
 
 
-
-
-**heavy dni on rp, go away**
-
-
- ⠀ ![image](https://github.com/user-attachments/assets/104c3f25-e83d-4e44-91bb-b04f6ef49789)
+ ⠀ ![image](https://github.com/user-attachments/assets/ad4e3805-51ed-4fcc-bc0d-c5a79c4ad7ea)
 
 
 
