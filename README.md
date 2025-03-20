@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/0a14fa86-d7fe-44fb-a9b4-b32afcff18b2)
+![image](https://github.com/user-attachments/assets/5fe4cadd-528b-4a6d-80c6-232408431557)
 
 
 ⠀ ᯓ any1 can int w me, idm 
@@ -8,22 +8,23 @@
 
 ٠࣪⭑ i'll allow c+h sometimes
 
-![image](https://github.com/user-attachments/assets/3518d060-9ac6-4f16-8841-c2803c6a6c3a)
-　 　　　　 🎟️. ⋆⸜  ![image](https://github.com/user-attachments/assets/2f4b4729-b089-43c8-90dc-d2a60a681b98)
-　 　　🐞
+![image](https://github.com/user-attachments/assets/a71d1f95-61ed-41be-926d-4ea63e36970b)
+　 　　　　 . ⋆⸜  ![image](https://github.com/user-attachments/assets/89c418d9-5745-4fd2-8bb2-cffd72d9778b)
 
 
-
+　 　　🍭
 
 ꩜ basic dni 
 
 
-![image](https://github.com/user-attachments/assets/741e2f2d-37e9-451e-ae3d-813207b8c0e4)  ![image](https://github.com/user-attachments/assets/b6935398-eefb-45f5-9187-5ce774c3ca55) ![image](https://github.com/user-attachments/assets/42327c26-0da1-4f7f-a10b-b7ce782970bb)
+![image](https://github.com/user-attachments/assets/627c377f-06c1-42ea-8f22-f31bd07e9cb7)
+  ![image](https://github.com/user-attachments/assets/869ecaf0-7819-431a-8dee-474e1e372227)
+ ![image](https://github.com/user-attachments/assets/4c913c66-d63e-455e-83af-bf0838e1585d)
 
 𖥔. dni rp go away
 
+![image](https://github.com/user-attachments/assets/b9d9658d-e975-4cf6-b3e2-0a08bff6da74)
 
- ⠀ ![image](https://github.com/user-attachments/assets/ad4e3805-51ed-4fcc-bc0d-c5a79c4ad7ea)
 
 
 
