@@ -8,9 +8,8 @@
 
 ٠࣪⭑ i'll allow c+h sometimes
 
-![image](https://github.com/user-attachments/assets/a71d1f95-61ed-41be-926d-4ea63e36970b)
-　 　　　　 . ⋆⸜  ![image](https://github.com/user-attachments/assets/89c418d9-5745-4fd2-8bb2-cffd72d9778b)
-
+![image](https://github.com/user-attachments/assets/bd45d6c6-2e1b-4b04-8002-3b7d9a7a2adf)
+　 　　　　 . ⋆⸜  ![image](https://github.com/user-attachments/assets/0d7304f4-0eec-44e4-a666-3404e8159d3e)
 
 　 　　🍭
 
@@ -21,7 +20,7 @@
   ![image](https://github.com/user-attachments/assets/869ecaf0-7819-431a-8dee-474e1e372227)
  ![image](https://github.com/user-attachments/assets/4c913c66-d63e-455e-83af-bf0838e1585d)
 
-𖥔. dni rp go away
+　 　　𖥔. dni rp go away
 
 ![image](https://github.com/user-attachments/assets/b9d9658d-e975-4cf6-b3e2-0a08bff6da74)
 
