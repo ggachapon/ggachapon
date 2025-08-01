@@ -17,7 +17,7 @@
 ![image](https://github.com/user-attachments/assets/54d1c392-d747-4502-ae28-1ad8b66e4522)
 
 
-　　⠀ ⠀ ⠀ **! ALL OF MY SKINS WILL HAVE MY GITHUB LINKED, DO NOT FALL FOR COPYCATS !**
+　　⠀ **! ALL OF MY SKINS WILL HAVE MY GITHUB LINKED, DO NOT FALL FOR COPYCATS !**
 
 
 
