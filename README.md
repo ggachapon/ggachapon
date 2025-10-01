@@ -1,23 +1,20 @@
-![image](https://github.com/user-attachments/assets/97c185d0-82ce-4d6d-8492-5ca505a6a955)
-
-
-⠀ ⠀ ⠀ ⠀ ⠀ 　 　　　　  ⠀ 　 　　　 ⋆˚࿔  [deinonychus](https://en.wikipedia.org/wiki/Deinonychus) ⁔ ˚ ˳ 　
-
-⠀ ⠀ ⠀ ⠀  ⠀ 　 　　　⠀ ⠀ 　 　 ⊱   ׅ 📼  ᛝ ✦•┈๑ ـــــــــــــــــــﮩ٨ـ 
-
- ⠀⠀ ⠀ ⠀⠀  ⠀ 　 　　　⠀ ⠀ 　 　 ⋮ ⌗ ┆ she/her: 17 ›  artist + dino lover . read [strawpage](https://bookhazard.straw.page)˙ . 𐔌   🦖  ⋆
- 
-
-　　　　　 　 ⠀ 　 　　　 ⠀multifandom 　 　　　⠀ 　 　　　 ⠀ 　 　　　　˚˖𓍢ִ໋`📋:✧˚.📷⋆.　　
- 　　　⠀ 　　　⠀ 　　　⠀ 　　　⠀ 　　　⠀ ⠀ ⠀ ⠀ ⠀ㅤㅤㅤㅤㅤㅤㅤ⠀ㅤㅤㅤㅤㅤㅤㅤ　⋆ 🦴｡𖦹 dinosaurs  and fossils⠀˙ . 𐂯 . 𖦹˙
-
- ⠀  ⠀ 　 　　　　 　　　　![image](https://github.com/user-attachments/assets/d3c840c1-ea0c-4073-822a-971b7ad10d1d) ![image](https://github.com/user-attachments/assets/a48f3871-b0a6-4c02-ad4d-82d84433496e) ![image](https://github.com/user-attachments/assets/163306d6-1fbb-4168-8584-9c0bd6a38039)
-
-
-![image](https://github.com/user-attachments/assets/54d1c392-d747-4502-ae28-1ad8b66e4522)
-
-
-　　⠀ **! ALL OF MY SKINS WILL HAVE MY GITHUB LINKED, DO NOT FALL FOR COPYCATS !**
+![image](https://github.com/user-attachments/assets/c72943a5-f7b5-4b82-b09d-ba95c4be027b)
 
 
 
+⠀ ⠀ ⠀ ⠀ ⠀ 　 　　　　  ⠀ 　 　　　   irl [deinonychus](https://en.wikipedia.org/wiki/Deinonychus)
+
+⠀ ⠀ ⠀ ⠀  ⠀ 　 　　　⠀ ⠀ 
+
+ ⠀⠀ ⠀ ⠀⠀  ⠀ 　 　　　⠀ ⠀ 　  17 : gigi lover + artist  [strawpage](https://bookhazard.straw.page)
+⠀ multifandom 　 　　　⠀ 　 　　　 ⠀ 　 　　　　　　
+ 　　　⠀ 　　　⠀ 　　　⠀ 　　　⠀ 　　　⠀ ⠀ ⠀ ⠀ ⠀ 　 　　　 ⠀ ⠀ 　 　　 ⠀ㅤㅤspace space shooter! 
+
+ ⠀  ⠀ 　 　　　　 　　　　![image](https://github.com/user-attachments/assets/b3bdc846-777e-466d-94b6-4207f3b3d8d0) ![image](https://github.com/user-attachments/assets/a48f3871-b0a6-4c02-ad4d-82d84433496e) ![image](https://github.com/user-attachments/assets/163306d6-1fbb-4168-8584-9c0bd6a38039)
+
+
+![image](https://github.com/user-attachments/assets/9d1606c3-5357-4569-9214-d90b27281530)
+
+
+
+　⠀ 　 　　　 ⠀ 　⠀ **! ALL OF MY SKINS WILL HAVE MY GITHUB LINKED, DO NOT FALL FOR COPYCATS !**
