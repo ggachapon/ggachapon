@@ -6,7 +6,7 @@
 
 ⠀ ⠀ ⠀ ⠀  ⠀ 　 　　　⠀ ⠀ 
 
- ⠀⠀ ⠀ ⠀⠀  ⠀ 　 　　　⠀ ⠀ 　  18 : knight lover + artist  [strawpage](https://bookhazard.straw.page) ![image](https://wilardo.crd.co/assets/images/gallery20/17e3a752.gif?v=cc97760d)  [toyhouse](https://toyhou.se/X33) ![image](https://wilardo.crd.co/assets/images/gallery20/17e3a752.gif?v=cc97760d)
+ ⠀⠀ ⠀ ⠀⠀  ⠀ 　 　　　⠀ ⠀ 　  18 : knight lover + artist  [strawpage](https://bookhazard.straw.page) ![image](https://wilardo.crd.co/assets/images/gallery20/17e3a752.gif?v=cc97760d)  [toyhouse](https://toyhou.se/X33) ![image](https://wilardo.crd.co/assets/images/gallery20/17e3a752.gif?v=cc97760d) [rentry](https://rentry.co/bookhazard)
 ⠀  　 　　　⠀ 　 　　　 ⠀ 　 　　　　　　
  　　　⠀ 　　　　　⠀ ⠀ 　　"I will be brave. I will try to be brave like a knight in shining armor."!
    ⠀  ⠀ 　 　　　⠀ ⠀ 　⠀  ⠀ 　 　　　⠀ ⠀ 　⠀  ⠀ 　 　　　⠀ ⠀ 　⠀  ⠀ 　 　　　⠀ ⠀  ⠀ 　 　　　⠀ ⠀ 　⠀ 　 ⋮ -17 iwc
