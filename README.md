@@ -2,7 +2,7 @@
           　 　　　  
               　　　　　　　　    ![image](https://64.media.tumblr.com/1fe39fdac0110f388646b94d23f5aef2/1f8e27a34c343319-0e/s540x810/925bc2ad3b7cc0693592e3f76e98a66b0005f86d.pnj)
 
-⠀ ⠀ ⠀ ⠀ ⠀ 　 　　　　  ⠀ 　 　　　 　 　　　　 　　　　 　　　  ![image](https://64.media.tumblr.com/561a3e55b9aa0b092af138276c72ddc6/tumblr_pwcyus99tG1xlx2ufo1_250.gifv)
+⠀ ⠀ ⠀ ⠀ ⠀ 　 　　　　  ⠀⠀ 　 　　　　  ⠀ <sup> ^ my looey sona  ⋮ Creamette Cuddlepop ^_^  </sub></sup>⠀ 　 　　 ![image](https://64.media.tumblr.com/561a3e55b9aa0b092af138276c72ddc6/tumblr_pwcyus99tG1xlx2ufo1_250.gifv)
 ⠀ ⠀ ⠀ ⠀  ⠀ 　 　　　⠀ ⠀ 
 
  ⠀⠀ ⠀ ⠀⠀  ⠀ 　 　　　⠀ ⠀ 　 　 　 18 : sweets lover + artist  [strawpage](https://bookhazard.straw.page) ![image](https://64.media.tumblr.com/8c47e773a3bbeab85b2c767f65d6e1dd/61d535c112c54c44-85/s75x75_c1/dfa845e93b3ff50019b116e6f636260d178ed099.gifv)  [toyhouse](https://toyhou.se/X33) ![image](https://64.media.tumblr.com/8c47e773a3bbeab85b2c767f65d6e1dd/61d535c112c54c44-85/s75x75_c1/dfa845e93b3ff50019b116e6f636260d178ed099.gifv) [rentry](https://rentry.co/bookhazard)
