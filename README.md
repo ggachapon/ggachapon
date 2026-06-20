@@ -1,4 +1,4 @@
-![image](https://64.media.tumblr.com/27c6cf0846f68c2b01c0bc224f3f9efd/bb4c2ff37f0a9317-a3/s400x600/d0965b96a09b11b1bf7f87f15827081309e56706.gifv)![image](https://64.media.tumblr.com/27c6cf0846f68c2b01c0bc224f3f9efd/bb4c2ff37f0a9317-a3/s400x600/d0965b96a09b11b1bf7f87f15827081309e56706.gifv)
+ ![image](https://64.media.tumblr.com/4d0919d76450a15958beb6c1b2b3430f/2e345a788ad3dfc1-ac/s2048x3072/b64957c930007ce86d54db45cfb39df44169891c.pnj)
               　　　　　　　　    ![image](https://files.catbox.moe/eu2d4k.png)
 ⠀ ⠀ ⠀ ⠀ ⠀ 　 　　　　  ⠀⠀ 　 　　　　  ⠀ <sup> ^ My Coal sona  ⋮ Mandy  </sub></sup>⠀ 　 　　 ![image](https://64.media.tumblr.com/707c51baf00b387243bc9e8a69f703ac/55e2c8658203e626-87/s75x75_c1/bac5b354d33e5e85090af9fbb2f89a0a060569e2.gifv)
 ⠀ ⠀ ⠀ ⠀  ⠀ 　 　　　⠀ ⠀ 
@@ -13,12 +13,12 @@
 
  　　　⠀ 　　　　 　　　⠀ 　　　　[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=9xfc1tnjsaqeqs5hxgsw9glem&cover_image=true&theme=novatorem&show_offline=true&background_color=fadaa7&interchange=false&profanity=false&hide_remaster=false&bar_color=d8534e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-![image](https://64.media.tumblr.com/27c6cf0846f68c2b01c0bc224f3f9efd/bb4c2ff37f0a9317-a3/s400x600/d0965b96a09b11b1bf7f87f15827081309e56706.gifv)![image](https://64.media.tumblr.com/27c6cf0846f68c2b01c0bc224f3f9efd/bb4c2ff37f0a9317-a3/s400x600/d0965b96a09b11b1bf7f87f15827081309e56706.gifv)
+　　　　　　　　　　　　　![image](https://64.media.tumblr.com/27c6cf0846f68c2b01c0bc224f3f9efd/bb4c2ff37f0a9317-a3/s400x600/d0965b96a09b11b1bf7f87f15827081309e56706.gifv)
 <p align="center"
 
 
 
-　⠀　　⠀　**! ALL OF MY SKINS WILL HAVE MY GITHUB LINKED, DO NOT FALL FOR COPYCATS !**
+　⠀　**! ALL OF MY SKINS WILL HAVE MY GITHUB LINKED, DO NOT FALL FOR COPYCATS !**
 
  <details>
 
