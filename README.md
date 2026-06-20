@@ -4,7 +4,7 @@
 ⠀ ⠀ ⠀ ⠀ ⠀ 　 　　　　  ⠀⠀ 　 　　　　  ⠀ <sup> ^ my sprout i adopted  ⋮ Huzzah ^_^  </sub></sup>⠀ 　 　　 ![image](https://64.media.tumblr.com/714a49e62dc49245765565d613ec1253/a8f483c8c045adae-bb/s250x400/3bfdb08fcacffc225f5a9de51499f4474eb43059.gifv)
 ⠀ ⠀ ⠀ ⠀  ⠀ 　 　　　⠀ ⠀ 
 
- ⠀⠀ ⠀ ⠀⠀  ⠀ 　 　　　⠀ ⠀ 　 　 　 18 : neurodivergent  + artist  [strawpage](https://bookhazard.straw.page) ![image](https://biscuit.crd.co/assets/images/gallery89/2fb2149f.gif?v=edffcd2f)  [toyhouse](https://toyhou.se/X33) ![image](https://biscuit.crd.co/assets/images/gallery01/fa694f3f.gif?v=edffcd2f) [rentry](https://rentry.co/bookhazard) ![image](https://biscuit.crd.co/assets/images/gallery89/27ed44c5.gif?v=edffcd2f) [ata](https://coal.atabook.org/) ![image](https://biscuit.crd.co/assets/images/gallery03/f057a6e6.gif?v=edffcd2f) 
+ ⠀⠀ ⠀ ⠀⠀  ⠀ 　 　　　⠀ ⠀ 　 　 　 18 : neurodivergent  + artist  [strawpage](https://bookhazard.straw.page) ![image](https://biscuit.crd.co/assets/images/gallery89/2fb2149f.gif?v=edffcd2f)  [toyhouse](https://toyhou.se/X33) ![image](https://biscuit.crd.co/assets/images/gallery01/fa694f3f.gif?v=edffcd2f) [rentry](https://rentry.co/bookhazard) ![image](https://biscuit.crd.co/assets/images/gallery89/27ed44c5.gif?v=edffcd2f) [ata](https://coal.atabook.org/) ![image](https://biscuit.crd.co/assets/images/gallery03/f057a6e6.gif?v=edffcd2f) [coal strawpage](https://queasycoal.straw.page)
 ⠀  　 　　　⠀ 　 　　　 ⠀ 　 　　　　　　
  　　　⠀ 　　　　　⠀ ⠀ 　　"I love all animals but they don't love me back.."
    ⠀  ⠀ 　 　　　⠀ ⠀ 　⠀  ⠀ 　 　　　⠀ ⠀ 　⠀  ⠀ 　 　　　⠀ ⠀ 　⠀  ⠀ 　 　　　⠀ ⠀  ⠀ 　 　　　⠀ ⠀ 　⠀ 　  -17 iwc, i say slurs i can reclaim + no insp ok? ok
