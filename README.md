@@ -20,11 +20,11 @@
 
 　⠀　**! ALL OF MY SKINS WILL HAVE MY GITHUB LINKED, DO NOT FALL FOR COPYCATS !**
 
- <details>
+<details>
 
-<summary>Whatever, go my Coals.
+<summary>Whatever, go my Coals</summary>
 
-
+![image](https://files.catbox.moe/dtf6be.png)![image](https://files.catbox.moe/sklxcq.webp)
 
 </details>
 
