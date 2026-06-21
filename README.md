@@ -24,7 +24,10 @@
 
 <summary>Whatever, go my Coals</summary>
 
-![image](https://files.catbox.moe/dtf6be.png)![image](https://files.catbox.moe/sklxcq.webp)
+![image](https://files.catbox.moe/dtf6be.png)![image](https://files.catbox.moe/09cai5.png)![image](https://files.catbox.moe/sklxcq.webp)![image](https://files.catbox.moe/a7thf3.webp)![image](https://files.catbox.moe/d7roq9.webp)![image](https://files.catbox.moe/eh2k2o.webp)![image](https://files.catbox.moe/jp9tah.webp)![image](https://files.catbox.moe/8blj76.webp)![image](https://files.catbox.moe/6qstsj.webp)![image](https://files.catbox.moe/4q13mg.webp)![image](https://files.catbox.moe/3tzd8h.webp)![image](https://files.catbox.moe/kl72fr.webp)![image](https://files.catbox.moe/55bd3t.webp)![image](https://files.catbox.moe/b62odp.webp)![image](https://files.catbox.moe/gdabr6.webp)![image](https://files.catbox.moe/xd0hjd.webp)![image](https://files.catbox.moe/o6zbh2.webp)
+
+
+
 
 </details>
 
