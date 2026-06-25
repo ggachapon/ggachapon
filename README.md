@@ -5,7 +5,7 @@
 
  ⠀⠀ ⠀ ⠀⠀  ⠀ 　 　　　⠀ ⠀ 　 　 　 18 : neurodivergent  + artist  [strawpage](https://bookhazard.straw.page) ![image](https://files.catbox.moe/eyy6xz.webp)  [toyhouse](https://toyhou.se/X33) ![image](https://wilardo.crd.co/assets/images/gallery04/2d8a4ce0.gif?v=5e5212ac) [rentry](https://rentry.co/bookhazard) ![image](https://wilardo.crd.co/assets/images/gallery02/b21154a0.gif?v=5e5212ac) [ata](https://coal.atabook.org/) ![image](https://wilardo.crd.co/assets/images/gallery04/99f1b5d7.gif?v=5e5212ac) [coal strawpage](https://queasycoal.straw.page)
 ⠀  　 　　　⠀ 　 　　　 ⠀ 　 　　　　　　
- 　　　⠀ 　　　　　**DNI :** Animal Hospital (mid slop) Toons Universe (mid) 
+ 　　　⠀**DNI:** Animal Hospital,Toons Universe,Tropicalland, People who can't use the block/hide button
    ⠀  ⠀ 　 　　　⠀ ⠀ 　⠀  ⠀ 　 　　　⠀ ⠀ 　⠀  ⠀ 　 　　　⠀ ⠀ 　⠀  ⠀ 　 　　　⠀ ⠀  ⠀ 　 　　　⠀ ⠀ 　⠀ 　  -17 iwc, i say slurs i can reclaim + no insp ok? ok
 
  ⠀  ⠀ 　 　　　　 　　　　　　 ⠀  ⠀ 　 ⠀ ![image](https://64.media.tumblr.com/d9e5b0553e9076336f86d9b1b7c71771/51ada2cb96a79e39-0c/s100x200/103a330146657ddfd1c247291d941a3be037e8a9.pnj) ![image](https://64.media.tumblr.com/6973d45042c476650a630108588878ec/51ada2cb96a79e39-86/s100x200/ac6cdc1dfe4e0cb338c2f4e8cc63fc4f8ca7274f.pnj) ![image](https://64.media.tumblr.com/e29047768bd7cc5baa6aed698d0dac9e/51ada2cb96a79e39-ec/s100x200/6864fc9dccbe359b1b35847cfedb5f366931a4b3.pnj)   ![image](https://64.media.tumblr.com/53934e73aaa7507d2756c2b8d5cb82d1/b90f09f2ea52fe6e-3c/s100x200/bac3142fecff7845b27d1b7548a8b33365e99662.gifv)  ![image](https://64.media.tumblr.com/2e8710acf3523ae9fa205b742276d6ce/9e7dc4019a59bb99-c6/s100x200/00b1554bfb38a64c15824a491e1280105ae710a1.pnj)  
