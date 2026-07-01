@@ -1,3 +1,6 @@
+HEY SO JUST GOT DOXXED OKAY NO
+![IMAGE](https://files.catbox.moe/dazhoh.png)
+
 editing my github because this is serious.
 
 ![image](https://files.catbox.moe/37dho0.webp)
