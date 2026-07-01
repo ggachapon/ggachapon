@@ -1,36 +1,22 @@
- ![image](https://64.media.tumblr.com/4d0919d76450a15958beb6c1b2b3430f/2e345a788ad3dfc1-ac/s2048x3072/b64957c930007ce86d54db45cfb39df44169891c.pnj)
-              　　　　　　　　    ![image](https://files.catbox.moe/eu2d4k.png)
-⠀ ⠀ ⠀ ⠀ ⠀ 　 　　　　  ⠀⠀ 　 　　　　  ⠀ <sup> ^ My Coal sona  ⋮ Mandy  </sub></sup>⠀ 　 　　 ![image](https://64.media.tumblr.com/707c51baf00b387243bc9e8a69f703ac/55e2c8658203e626-87/s75x75_c1/bac5b354d33e5e85090af9fbb2f89a0a060569e2.gifv)
-⠀ ⠀ ⠀ ⠀  ⠀ 　 　　　⠀ ⠀ 
+editing my github because this is serious.
 
- ⠀⠀ ⠀ ⠀⠀  ⠀ 　 　　　⠀ ⠀ 　 　 　 18 : neurodivergent  + artist  [strawpage](https://bookhazard.straw.page) ![image](https://files.catbox.moe/eyy6xz.webp)  [toyhouse](https://toyhou.se/X33) ![image](https://wilardo.crd.co/assets/images/gallery04/2d8a4ce0.gif?v=5e5212ac) [rentry](https://rentry.co/bookhazard) ![image](https://wilardo.crd.co/assets/images/gallery02/b21154a0.gif?v=5e5212ac) [ata](https://coal.atabook.org/) ![image](https://wilardo.crd.co/assets/images/gallery04/99f1b5d7.gif?v=5e5212ac) [coal strawpage](https://queasycoal.straw.page)
-⠀  　 　　　⠀ 　 　　　 ⠀ 　 　　　　　　
-**DNI:** Animal Hospital,Toons Universe,Tropicalland, People who can't use the block/hide button
-   ⠀  ⠀ 　 　　　⠀ ⠀ 　⠀  ⠀ 　 　　　⠀ ⠀ 　⠀  ⠀ 　 　　　⠀ -17 iwc, i say slurs i can reclaim + no insp ok? ok
+![image](https://files.catbox.moe/37dho0.webp)
 
- ⠀  ⠀ 　 　　　　 　　　　　　 ⠀  ⠀ 　 ⠀ ![image](https://64.media.tumblr.com/d9e5b0553e9076336f86d9b1b7c71771/51ada2cb96a79e39-0c/s100x200/103a330146657ddfd1c247291d941a3be037e8a9.pnj) ![image](https://64.media.tumblr.com/6973d45042c476650a630108588878ec/51ada2cb96a79e39-86/s100x200/ac6cdc1dfe4e0cb338c2f4e8cc63fc4f8ca7274f.pnj) ![image](https://64.media.tumblr.com/e29047768bd7cc5baa6aed698d0dac9e/51ada2cb96a79e39-ec/s100x200/6864fc9dccbe359b1b35847cfedb5f366931a4b3.pnj)   ![image](https://64.media.tumblr.com/53934e73aaa7507d2756c2b8d5cb82d1/b90f09f2ea52fe6e-3c/s100x200/bac3142fecff7845b27d1b7548a8b33365e99662.gifv)  ![image](https://64.media.tumblr.com/2e8710acf3523ae9fa205b742276d6ce/9e7dc4019a59bb99-c6/s100x200/00b1554bfb38a64c15824a491e1280105ae710a1.pnj)  
+This is not me. I sign atas with the name "domo" because my name is domo, here are actual ata messages ive sent:
 
+![image](https://files.catbox.moe/b39yeb.png) ![image](https://files.catbox.moe/f7pqva.png)![image](https://files.catbox.moe/ao99db.png)
 
- 　　　⠀ 　　　　 　　　⠀ 　　　　[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=9xfc1tnjsaqeqs5hxgsw9glem&cover_image=true&theme=novatorem&show_offline=true&background_color=fadaa7&interchange=false&profanity=false&hide_remaster=false&bar_color=d8534e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
-
-　　　　　　　　　　　　　![image](https://64.media.tumblr.com/27c6cf0846f68c2b01c0bc224f3f9efd/bb4c2ff37f0a9317-a3/s400x600/d0965b96a09b11b1bf7f87f15827081309e56706.gifv)
-<p align="center"
-
-
-
-　⠀　**! ALL OF MY SKINS WILL HAVE MY GITHUB LINKED, DO NOT FALL FOR COPYCATS !**
+the only time ive signed an ata as a different name was just "woof" because the ata was dog/puppy themed and i thought it would be cute:
+![image](https://files.catbox.moe/868fbd.png)
 
 <details>
 
-<summary>Whatever, go my Coals</summary>
+<summary>i've already have been sent threats on my ata</summary>
 
 
-![image](https://files.catbox.moe/dtf6be.png)![image](https://files.catbox.moe/09cai5.png)![image](https://files.catbox.moe/sklxcq.webp)![image](https://files.catbox.moe/a7thf3.webp)![image](https://files.catbox.moe/d7roq9.webp)![image](https://files.catbox.moe/eh2k2o.webp)![image](https://files.catbox.moe/jp9tah.webp)![image](https://files.catbox.moe/8blj76.webp)![image](https://files.catbox.moe/6qstsj.webp)![image](https://files.catbox.moe/4q13mg.webp)![image](https://files.catbox.moe/3tzd8h.webp)![image](https://files.catbox.moe/7xpjoj.gif)![image](https://files.catbox.moe/4cryyw.gif)![image](https://files.catbox.moe/7ygzc7.gif)![image](https://files.catbox.moe/wvdy0v.gif)![image](https://files.catbox.moe/5nmqdo.gif)![image](https://files.catbox.moe/04yo6z.webp)![image](https://files.catbox.moe/jhsd23.webp)![IMAGE](https://files.catbox.moe/86lrrx.gif)![image](https://files.catbox.moe/c5ixc4.gif)![image](https://files.catbox.moe/bmxdzq.gif)![image](https://files.catbox.moe/nnn486.gif)![image](https://files.catbox.moe/4x04xb.webp)![image](https://files.catbox.moe/rvhi88.webp)![image](https://files.catbox.moe/8znxyx.webp)![image](https://files.catbox.moe/vlz9j7.webp)![image](https://files.catbox.moe/d99jm1.webp)![image](https://files.catbox.moe/5jkfi8.webp)![image](https://files.catbox.moe/iclgz7.webp)![image](https://files.catbox.moe/qxrm70.webp)![image](https://files.catbox.moe/1c87nf.webp)![image](https://files.catbox.moe/yfn3g9.webp)![image](https://files.catbox.moe/qudgrj.webp)![image](https://files.catbox.moe/z0k1wp.webp)![image](https://files.catbox.moe/mvjlld.webp)![image](https://files.catbox.moe/i56zut.webp)![image](https://files.catbox.moe/41j7q6.webp)![image](https://files.catbox.moe/l6xbv3.webp)![image](https://files.catbox.moe/w167at.webp)![image](https://files.catbox.moe/060rol.webp)![image](https://files.catbox.moe/ku1qoe.webp)![image](https://files.catbox.moe/0cybg8.webp)![image](https://files.catbox.moe/ra28be.webp)![image](https://files.catbox.moe/kl72fr.webp)![image](https://files.catbox.moe/55bd3t.webp)![image](https://files.catbox.moe/b62odp.webp)![image](https://files.catbox.moe/gdabr6.webp)![image](https://files.catbox.moe/xd0hjd.webp)![image](https://files.catbox.moe/o6zbh2.webp)![image](https://files.catbox.moe/50lyqp.webp) ![image](https://files.catbox.moe/tb0mde.gif)
-![image](https://files.catbox.moe/lyk3tc.webp)
-
-
-
+![image](https://files.catbox.moe/mtc50u.png) ![image](https://files.catbox.moe/12hb04.png)
 
 </details>
+i am not a darkshipper and i would never claim myself as one, whoever is doing this is fucking sick.
 
 
