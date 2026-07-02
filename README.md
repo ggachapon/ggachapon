@@ -6,6 +6,8 @@
 　　　　　　![image](https://gifcity.carrd.co/assets/images/gallery45/02dadca2.gif?v=3fc8f5cd)
 
 
+　　　　　　　　　　　　[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=9xfc1tnjsaqeqs5hxgsw9glem&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=false&profanity=false&hide_remaster=false&bar_color=ffc926&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
 <details>
 
 <summary>.</summary>
