@@ -1,4 +1,4 @@
-![image](https://64.media.tumblr.com/9fa36c8b29783959408a8d52310289f8/4fbe91af0d9fbe8a-e5/s640x960/614c598b5d81c69e36f4c7ed0923d72a428a5cca.pnj)
+　　　　　![image](https://64.media.tumblr.com/9fa36c8b29783959408a8d52310289f8/4fbe91af0d9fbe8a-e5/s640x960/614c598b5d81c69e36f4c7ed0923d72a428a5cca.pnj)
 
 　　　　![iamge](https://gifcity.carrd.co/assets/images/gallery07/1b7ade53.gif?v=3fc8f5cd)　　　 ${\textsf{\color{#7400CA}old user was ggachapon}}$ ${\textsf{\color{#fcf1e5}　　𓈒　　}}$  ${\textsf{\color{#FFC926} leave me alone, only friends can int }}$   　　![image](https://gifcity.carrd.co/assets/images/gallery271/3b3044a4.gif?v=3fc8f5cd)
 
